@@ -8,7 +8,7 @@ I’d like to use data from the ACLU, the Office of Justice Programs - Bureau of
 
 - How have these numbers changed since states began legalizing?
 - What are the potential impacts of federal pushback?
-Who is profiting from marijuana legalization? 
+- Who is profiting from marijuana legalization? 
 - Who is hurting the most?
 - Who owns the legal weed business in the U.S. and what are their other business interests?
 
